@@ -7,8 +7,12 @@
 ![](https://i.imgur.com/YbeaeuK.png)
 
 # [-_twitch.tvutsuloli](https://drive.google.com/file/d/1FXrJbtQSmS_VPeMjyBBHGoz1MEmrO8cF/view)
-![](https://i.imgur.com/oARTEKh.png)
+![](https://i.imgur.com/IHBCFOe.png)
 
+# [Aristia Skin](https://drive.google.com/file/d/1SzsHmCWDoKJA3NotbWrgWuPB62c_Cugp/view)
+![](https://i.imgur.com/RafywxQ.png)
 
+# [BOOP DT SKIN](https://drive.google.com/file/d/1y8vflgNlcdMbVeRDQYVVXM7F6CDbjYrr/view)
+![](https://i.imgur.com/qZsOsZ4.png)
 
 
